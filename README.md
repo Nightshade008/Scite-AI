@@ -1,5 +1,7 @@
 # 🎯 Crack the Research Code: Scite AI Coupons That'll Make Your Wallet Happy!
 
+[![Scite AI Coupons](https://res.cloudinary.com/dav29ivcg/image/upload/v1746276226/Scite_AI_Coupons_svqn92.png)](https://shareasale.com/r.cfm?b=1818163&u=2799201&m=113325&urllink=&afftrack=)
+
 Ever felt like you're drowning in a sea of research papers without a lifeboat? Let me toss you a game-changer: **[Scite AI](https://shareasale.com/r.cfm?b=1818163&u=2799201&m=113325&urllink=&afftrack=)** – your new research BFF that won't break the bank (especially with the juicy discounts I've hunted down)!
 
 Whether you're a caffeine-fueled PhD student or a data-hungry researcher, Scite AI transforms how you handle scientific literature. And guess what? I've got the hottest Scite AI coupon codes that'll slash your subscription costs by up to 75%!
