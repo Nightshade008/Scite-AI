@@ -7,6 +7,8 @@ Ever felt like you're drowning in a sea of research papers without a lifeboat? L
 Whether you're a caffeine-fueled PhD student or a data-hungry researcher, Scite AI transforms how you handle scientific literature. And guess what? I've got the hottest Scite AI coupon codes that'll slash your subscription costs by up to 75%!
 Ready to supercharge your research without emptying your pockets? Let's dive in!
 
+[![Grab Your Scite AI Coupon Now!](https://res.cloudinary.com/dav29ivcg/image/upload/v1746421134/Grab_Your_Scite_AI_Coupon_Now_btscyz.png)](https://shareasale.com/r.cfm?b=1818163&u=2799201&m=113325&urllink=&afftrack=)
+
 ---
 
 ## 💡 What Makes Scite AI a Research Revolution?
@@ -44,6 +46,8 @@ Skip the endless Google search – I've rounded up the best working Scite AI cou
 | 25% OFF  | [ACTIVATE25](https://shareasale.com/r.cfm?b=1818163&u=2799201&m=113325&urllink=&afftrack=)         | Good option for 12-month plans           |
 | 20% OFF  | [ACTIVATEBANNER20](https://shareasale.com/r.cfm?b=1818163&u=2799201&m=113325&urllink=&afftrack=)   | Modest but reliable discount             |
 
+[![Claim Your Discount Now!](https://res.cloudinary.com/dav29ivcg/image/upload/v1746421134/Claim_Your_Discount_Now_u5fu9f.png)](https://shareasale.com/r.cfm?b=1818163&u=2799201&m=113325&urllink=&afftrack=)
+
 ---
 
 ## 📚 Scite AI Plans & What You'll Get
@@ -74,6 +78,8 @@ The paid plans unlock Scite AI's full power, giving you:
 
 With the right coupon code, these premium features become surprisingly affordable!  
 
+[![Unlock Premium Features at Discounted Rates!](https://res.cloudinary.com/dav29ivcg/image/upload/v1746421133/Unlock_Premium_Features_at_Discounted_Rates_zlcb84.png)](https://shareasale.com/r.cfm?b=1818163&u=2799201&m=113325&urllink=&afftrack=)
+
 ---
 
 ## 🛠️ How to Apply Your Scite AI Coupon Code (Don't Mess This Up!)
@@ -88,6 +94,8 @@ Got your coupon code? Great! Here's how to use it without any hiccups:
 6. **Apply and watch the magic happen** as your total drops faster than a rejected manuscript! 
 
 **Pro tip**: If one code doesn't work, try another – some codes are specific to certain plans or new users.
+
+[![Apply Coupon and Save Now!](https://res.cloudinary.com/dav29ivcg/image/upload/v1746421133/Apply_Coupon_and_Save_Now_tdd6ms.png)](https://shareasale.com/r.cfm?b=1818163&u=2799201&m=113325&urllink=&afftrack=)
 
 ---
 
@@ -155,3 +163,6 @@ Ready to transform your research workflow without breaking the bank? Use one of 
 ---
 
 **Got questions or need help with a coupon? Open an issue or leave a comment – I’ll help you out!**
+
+[![Don’t Miss Out – Save Up to 75% Today!](https://res.cloudinary.com/dav29ivcg/image/upload/v1746421133/Don_t_Miss_Out_Save_Up_to_75_Today_py0b1d.png)](https://shareasale.com/r.cfm?b=1818163&u=2799201&m=113325&urllink=&afftrack=)
+
